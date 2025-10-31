@@ -9,7 +9,7 @@ Career-transitioned cybersecurity professional with 40 years of engineering disc
 ## 🎓 Certifications & Education
 
 **Current:**
-- 🎓 **Google Cybersecurity Professional Certificate** (2025) - [View Certificate]( https://www.credly.com/go/jsJtA9Kr)
+- 🎓 **Google Cybersecurity Professional Certificate** (2025) -  https://www.credly.com/go/jsJtA9Kr
 - 🎓 **Full Stack Web Development** - freeCodeCamp (1,800+ hours)
 
 **Foundation:**
