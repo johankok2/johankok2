@@ -109,4 +109,4 @@ Seeking roles where I can apply my unique combination of:
 
 ---
 
-**Last Updated:** January 2025
+**Last Updated:** November 2025
