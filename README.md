@@ -85,7 +85,7 @@ Seeking roles where I can apply my unique combination of:
 
 **Email:** jhckokpretoria@gmail.com  
 **Location:** Centurion, Gauteng, South Africa  
-**LinkedIn:** [https://www.linkedin.com/in/johan-kok-b7b7a817a/]  
+**LinkedIn:** [https://www.linkedin.com/in/johankok-cybersecurity/]  
 **Phone:** +27 (0) 72 211 5298
 
 ---
